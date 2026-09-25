@@ -42,4 +42,4 @@ and Administrative Documentation* - IEEE DG 2026, accepted, first author.
 
 ## Contact
 
-Telegram [@nurzhvn](https://t.me/nurzhvn) · serikbekov2004@mail.ru
+Telegram [@nurzhvn](https://t.me/nurzhvn) · nurzhanserikbekov@gmail.com
